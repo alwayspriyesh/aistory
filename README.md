@@ -1,2 +1,2 @@
 a competition win
-won 3k rupees 
+won 3k rupees
